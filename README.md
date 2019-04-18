@@ -1,3 +1,5 @@
+![image](https://github.com/gegekan/ggk69/blob/master/46.png)
+
 ## 哥哥看最新地址，每月初定时更新地址
 
 
