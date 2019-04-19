@@ -8,8 +8,10 @@
 
 ```javasript
 最新地址一：https://ggk56.com
+最新地址一：https://ggkair.com
+最新地址一：https://ggksky.com
 
-  备用地址：https://ggk365.com
+备用地址：https://ggk365.com
 ```
 ## ★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 
